@@ -15,3 +15,4 @@ Hi There, Nice To Meet You ! Yeet !!!!
 [Ads For Fools](https://discord.com/invite/y5dKDAW) - Where You Learn How To Grow Your Server
 
 
+<img src="https://cdn.discordapp.com/attachments/762181220448600084/802511818357473300/unknown.png">
